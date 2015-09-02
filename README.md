@@ -1,4 +1,4 @@
-Red Carpet Hackathon
+Red Carpet Hackathon, Aug 29, 2015
 
 Exercise done at Hackathon for DC Web Women and American Military Engineers
 
